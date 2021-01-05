@@ -1,3 +1,3 @@
 # Ark
 
-###### Owned by Atzher#0727 and NightmareBlaze#3455
+###### Owned by Atzher#0727 and NightBlaze#3455
